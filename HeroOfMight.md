@@ -6,7 +6,7 @@ Origin: [Герой меча](http://samlib.ru/g/ganolx_j_w/genoy_mecha.shtml) *
 
 Waves and waves of a huge army - griffins, mages, dark riders, golems, centaurs, cyclops, hydras, troglodytes, liches, manticores, efreets, firebirds, mummies, and harpies - flooded Castle walls. The assault began.
 
-Dozens of hands and paws started rocking a ram. Wooden gates accompanied blows with groaning. A hundred of onagers lined up in front of impregnable stone walls. A roar of the Demon Horn woke up hundred of fire stones. Like hungry hawks, they rushed towards sieged Castle. The air mingled victories cries of the Knight's army with doomed sobs of defenders. Smoke turned day into night. The last battle, the greatest battle blossomed with blood like a red rose. Every sword, every ax and arrow found its target. Draw it in your mind, let fear burn your skin, leave you dying millions of deaths.  The last battle, the greatest battle...
+Dozens of hands and paws started rocking a ram. Wooden gates accompanied blows with groaning. A hundred of onagers lined up in front of impregnable stone walls. A roar of the Demon Horn woke up hundred of fire stones. Like hungry hawks, they rushed towards a sieged Castle. The air mingled victories cries of the Knight's army with doomed sobs of defenders. Smoke turned day into night. The last battle, the greatest battle blossomed with blood like a red rose. Every sword, every ax and arrow found its target. Draw it in your mind, let fear burn your skin, leave you dying millions of deaths.  The last battle, the greatest battle...
 
 Eventually, as a sun vanished from a horizon, the battle voices also died out. Ash, blood, and urine were what was left. The defenders softly groaned from mortal wounds. The Knight's warriors wearily lowered their swords and bows, unfastened their armor or what was left of it, and found rest where they stood. As the last who remanded standing won, right?
 
@@ -30,7 +30,7 @@ She followed onto a balcony, and holding her arm at an angle of seventy-three de
 
 *- Look, look what you have done!*
 
-The Knight lowered the Sword to the marble floor. Followed by a rumble of his armor, the Knight crossed the hall and squinted at a blurring point in the sky.
+The Knight lowered the Sword to a marble floor. Followed by a rumble of his armor, he crossed the hall and squinted at a blurring point in the sky.
 
 *- Yes?* - muttered he, uncertain whether he could approach his beautiful Princess any closer.
 
